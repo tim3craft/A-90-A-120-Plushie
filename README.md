@@ -1,1 +1,1 @@
-A-120 isnt added yet broski
+The script is cool
